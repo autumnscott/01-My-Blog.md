@@ -36,3 +36,4 @@ Annabelle, our fearless shop dog, was of consistent help and oversaw the product
 
 ## March 2018
 On March 8th, we opened our doors as Hyk for the first time. We hosted an open house and ribbon cutting with our friend and Mayor, Todd Jirsa. The evening was joyous and successful and started our first season off strong.  
+
